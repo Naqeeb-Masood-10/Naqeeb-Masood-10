@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **C/C++, HTML, CSS, JAVASCRIPT, BOOTSTRAP, Java, Python**
 
-- 📫 How to reach me **AbdullahSohailas62@gmail.com**
+- 📫 How to reach me **naqeebmasood10@gmail.com**
 
 - ⚡ Fun fact **I am funny.**
 
